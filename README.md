@@ -1,1 +1,0 @@
-# Sale_of_womens_bags_and_backpacks
